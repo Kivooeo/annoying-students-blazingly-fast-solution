@@ -1,0 +1,1 @@
+# annoying-students-blazingly-fast-solution
